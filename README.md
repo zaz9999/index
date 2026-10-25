@@ -1,2 +1,0 @@
-# index
-wedding invitation 
